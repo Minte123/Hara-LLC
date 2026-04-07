@@ -1,2 +1,0 @@
-# Hara-LLC
-Business 
